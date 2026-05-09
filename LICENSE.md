@@ -1,4 +1,4 @@
-
+drag drive simulator vip Scripts offers the most advanced drag drive simulator Script, with auto-upgrade and teleport. Perfect for dominating any
 
 
 
